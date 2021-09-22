@@ -1,5 +1,3 @@
-Profil af Mathias Rempt Petersen
-
 
 
 
